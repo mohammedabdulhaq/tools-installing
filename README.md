@@ -1,3 +1,3 @@
 # Tools-Installing
 
-Will Post the Content Shortly
+Content will be posted shortly
